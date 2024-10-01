@@ -5,7 +5,7 @@ tags:
 ---
 I should start writing instead of fancying up my digital garden.
 
-I fall back into the trap of decorating the notebook to the very ✨*aesthetic*✨ instead of taking the actual note. 😞
+I fall back into the trap of decorating the notebook to the very ✨*aesthetic*✨ instead of taking the actual note. 😞 
 
 ...
 
